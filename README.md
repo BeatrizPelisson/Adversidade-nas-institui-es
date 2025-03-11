@@ -1,0 +1,1 @@
+# Adversidade-nas-institui-es
